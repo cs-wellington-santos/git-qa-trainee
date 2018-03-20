@@ -1,3 +1,12 @@
+
+d
+da
+ad
+ada
+da
+d
+da
+a
 ## Wellington Avelino dos Santos
 
 
